@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Programming as my best decision
 - 📫 How to reach me my phone no: 0797503107
 - 😄 Pronouns: Tanzania🇹🇿
-- ⚡ Fun fact: Dont be to judgemental
+- ⚡ Fun fact: Dont be too judgemental
 
 <!---
 DavidMwangijr/DavidMwangijr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
