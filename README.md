@@ -5,7 +5,11 @@
 - 📫 How to reach me my phone no: 0797503107
 - 😄 Pronouns: Tanzania🇹🇿
 - ⚡ Fun fact: Dont be too judgemental
-
+- God Above All
+- Inspire before you Expire
+- Happiness is the best Gift in Life
+  
+  
 <!---
 DavidMwangijr/DavidMwangijr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
